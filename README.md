@@ -1,0 +1,1 @@
+przydatne str danych
